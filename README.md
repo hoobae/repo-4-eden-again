@@ -1,17 +1,13 @@
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1543435856113827880/Untitled228_20260830093740.png?ex=6a94dc27&is=6a938aa7&hm=cba5d1ab6bcc1888137ee37bb9a0ffa2e673c64952d693052e2b51ce0cc5f126&" alt="ivti" width="600" ></p>
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546078594168782878/Untitled228_20260906164406.png?ex=6a9e7965&is=6a9d27e5&hm=8b33ba1d58446e32ae9218865031d1e5ec404debc33b786e19f72c012cde03fa&" alt="ivti" width="550" ></p>
 
 
 
 
 
 
-
-
-
-
-
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="300" ></p>
  ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074469766795324/Untitled227_20260906124822.png?ex=6a9e758e&is=6a9d240e&hm=a8096f2120f2e56a02cb8cd2b87b5c5a71c12537a0048133e865aecb9eb2b6c5&" alt="ti" width="300" ></p>ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 
@@ -22,7 +18,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="300" ></p>ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
