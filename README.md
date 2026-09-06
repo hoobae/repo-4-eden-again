@@ -32,5 +32,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="200" ></p>
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="300" ></p>
 ㅤㅤㅤㅤㅤㅤㅤ
