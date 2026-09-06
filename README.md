@@ -19,6 +19,16 @@
 
 
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074555791970334/Untitled228_20260906160743.png?ex=6a9e75a2&is=6a9d2422&hm=c2e179dc72a672f3d257b2b53eef94bd856fbb58cfc874937058b3c1ddbefc45&" alt="divider" width="300" ></p>ㅤㅤㅤㅤㅤㅤㅤ
+
+
+
+<p align="center"><a href="https://guns.lol/tillcest">
+    <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1546074470756913162/Untitled227_20260906160500.png?ex=6a9e758e&is=6a9d240e&hm=72385cb62156200b2c899de6f22c5904db383a967c5ce332652bfaa4e46024bc&" alt="guns.lol" width="300" >
+</a> <a href="https://tillcest.atabook.org/">
+    <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1535681151119786134/Untitled159_20260809000808.png?ex=6a78a606&is=6a775486&hm=2873d7a032424a44eff8a7faa3596487cbaf0c40a5d1d4d7ea31da62f8a4d90c&" alt="atabook" width="300" >
+</a></p>
+
+
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
